@@ -1,2 +1,0 @@
-# RaulR.Chavez
-Personal page
